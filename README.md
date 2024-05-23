@@ -1,2 +1,3 @@
 - 👋 Hi, I’m NgocLam!
-- 👀 I’m interested in web developer!
+- 👀 Web developer!
+- ❤️ I am passionate about web design!
