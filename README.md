@@ -1,3 +1,5 @@
 - 👋 Hi, I’m NgocLam!
 - 👀 Web developer!
 - ❤️ I am passionate about web design!
+- ☎️ You can contact me via phone number: 0946125926!
+- 🙋‍♂️ Nice to meet you!
